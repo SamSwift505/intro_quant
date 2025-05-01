@@ -1,0 +1,1 @@
+To download the syllabus, click the above link called "Introduction to Quantitative Health Science Research and Data Analysis". Then, click the three dots (elipsis) and an option to download will appear.
